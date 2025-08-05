@@ -1,1 +1,1 @@
-[Ссылка на РЕЗЮМЕ](https://drive.google.com/file/d/1aoa6y5BylbFq_Sulj0G0ah3Jyye9HlPc/view?usp=sharing)
+[Ссылка на РЕЗЮМЕ](https://drive.google.com/file/d/1XlyL3eDifkFHBM9xGmWoejBiQS7Efc7i/view?usp=sharing)
